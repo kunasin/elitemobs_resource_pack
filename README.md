@@ -1,0 +1,1 @@
+# elitemobs_resource_pack
